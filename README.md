@@ -6,6 +6,6 @@
 - **Lớp:** DI2696A!
 
 ## Liên kết thực hành
-- **Facebook Fanpage:** https://www.facebook.com/share/19tAFvnZf2/?mibextid=wwXIfr
+- **Facebook Fanpage:** https://www.ctu.edu.vn/
 - **Zalo Group:**https://zalo.me/g/rvofzqelrjzvktq4udpi
 - **Video cuộc họp Google Meet/Zoom (YouTube):** https://youtu.be/Il6eXWAbIso?si=ihlPlkgD-JkGQnEh
