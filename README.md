@@ -8,4 +8,4 @@
 ## Liên kết thực hành
 - **Facebook Fanpage:** https://www.ctu.edu.vn/
 - **Zalo Group:**https://zalo.me/g/rvofzqelrjzvktq4udpi
-- **Video cuộc họp Google Meet/Zoom (YouTube):** https://youtu.be/Il6eXWAbIso?si=ihlPlkgD-JkGQnEh
+- **Video cuộc họp Google Meet/Zoom (YouTube):** https://meet.google.com/jyv-kytk-xzf
